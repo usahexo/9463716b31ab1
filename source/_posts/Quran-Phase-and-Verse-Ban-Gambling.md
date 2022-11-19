@@ -1,0 +1,71 @@
+---
+title: Quran Phase and Verse Ban Gambling
+date: 2022-11-19 19:32:18
+categories:
+- Casino
+tags:
+---
+
+
+#  Quran Phase and Verse Ban Gambling
+
+The Quran prohibits gambling and condemns those who engage in it. This prohibition is based on a number of Quranic verses, including Verse 30 of Chapter 2, which reads:
+
+"O you who have believed, indeed, alcohol, gambling, al-ansab, and al-azlam are an abomination of Satan's doing. So avoid them that you may be successful."
+
+Gambling is an evil act that is motivated by greed and leads to sinful behavior. It causes people to lose their money and waste their time. It also disrupts family life and can lead to violence and crime.
+
+#  Islamic scholars say gambling is forbidden in Quran phase and verse
+
+Islamic scholars say that gambling is forbidden in the Quran. Gambling is denounced in the religious text in a number of verses, with some declaring it one of the "great sins".
+
+A hadith attributed to Muhammad states: "The greatest of days in the sight of Allah is the day on which He created horses, mules and camels, and put them in His service." This suggests that gambling, or betting on such creatures, is considered a sin.
+
+Gambling has been outlawed in many Muslim countries as a result of this religious ruling. In countries such as Malaysia and Qatar, it is illegal to bet on horse racing or other sporting events. And in Indonesia, an Islamic province, numerous casinos have been closed down in recent years.
+
+Some argue that where gambling is not specifically mentioned in the Quran there may be scope for debate about its permissibility. But given the numerous verses denouncing it and the hadith quoted above, most Islamic scholars believe that gambling is forbidden under any circumstances.
+
+#  Gambling forbidden in Quran phase and verse, Islamic scholars say
+
+The Quran, the Islamic holy book, forbids gambling in phases and verses, Islamic scholars say.
+
+“Gambling is forbidden as it leads to enmity and hatred among people,” said Sheikh Ali Eid, former head of the enlightenment department at Egypt’s Dar al-Ifta, or House of Fatwas, which issues religious edicts.
+
+He was commenting on a recent fatwa – or ruling – by the department that said gambling is strictly forbidden in Islam. The ruling was in response to a query from a man who wanted to know whether it was permissible to gamble in order to make money.
+
+Scholars say there are numerous verses in the Quran that forbid gambling. These include verses such as: “O you who believe! Intoxicants (all kinds of liquor), and gambling, and Al-Ansab, and Al-Azlam (arrows for seeking luck or decision) are an abomination of Shaytan's (Satan's) handiwork. So avoid (strictly all) that (abomination) in order that you may be successful” (Quran 5:90), and “They ask you concerning wine and gambling. Say: ‘In them is great sin, and some profit, for men; but the sin is greater than the profit’” (Quran 2:219).
+
+Islamic scholars say gambling is not only prohibited because it is sinful but also because it can lead to other sins such as stealing, cheating and bribery. “It also corrupts people’s morals and makes them addicted to betting, which can then lead to other serious vices such as drugs and prostitution,” Eid said.
+
+All forms of gambling are banned in Islam, including betting on horse races and football matches. Some scholars have said it is permissible to gamble if the stakes are not high and there is no possibility of financial loss or gain but this view is not shared by all Islamic scholars.
+
+#  Why gambling is forbidden in Quran phase and verse 
+
+The Qur’an forbids gambling in no uncertain terms. In a nutshell, Allah (SWT) states in the Qur’an that gambling is an evil act because it results in financial losses for both the player and the loser, it creates social discord, and it encourages immoral behavior. It is interesting to note that the prohibition of gambling is not just confined to card games or betting on animals or sports; any form of gambling is forbidden in Islam.
+
+The following are some of the reasons why gambling is forbidden in Islam: 
+
+1. Gambling causes financial losses for both the player and the loser.
+
+2. Gambling creates social disharmony as people quarrel and fight over money lost in gambling games.
+
+3. Gambling encourages immoral behavior such as lying, cheating, and stealing.
+
+4. Gambling addicts often lose all their money and possessions, leading to a life of poverty and misery
+
+#  How to stay away from gambling in Quran phase and verse
+
+Gambling has been present in human societies since antiquity. Evidence of organized gambling can be found in many ancient texts, including the Bible and the Qur’an. Gambling is an issue that continues to generate much religious and moral debate, as it is seen as both morally repugnant and a source of great personal temptation.
+
+Islam forbids gambling in all its forms. There are many verses in the Qur’an that deal with the prohibition of gambling, including these:
+
+"They ask you about intoxicants and gambling. Say, "In them there is great harm and some benefit for people, but their harm is greater than their benefit." And they ask you what they should spend. Say, "What you can spare." Allah does not want to place you in difficulty, but wants to cleanse you and to complete His favor upon you that you may be grateful." (Qur'an 2:219)
+
+
+"O you who have believed, do not consume one another's wealth unjustly but only trade by mutual consent. And do not kill yourselves. Indeed, Allah is ever Merciful to you." (Qur'an 4:29)
+
+
+"And they say, "Do not gamble," and they are righteous? Jurists! They prohibit it while they themselves consume it.'" (Qur'an 2:219)
+
+
+The wisdom behind the prohibition of gambling is that it leads to much social corruption and personal mischief. Gambling creates a false sense of hope and excitement, which often proves to be disastrous for those who become addicted to it.
